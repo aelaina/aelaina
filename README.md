@@ -11,4 +11,4 @@ Outside of that, I'm pretty interested in computers in general. I like messing w
 
 I don't really have much else to put here, so that's about it :p
 
-If you wanna get in contact with me, reach out via discord @ Authoryl 
+If you wanna get in contact with me, reach out via discord @ Authoryl or email my business email: contactauthoryl@gmail.com
